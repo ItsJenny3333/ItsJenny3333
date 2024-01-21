@@ -1,9 +1,9 @@
 - 👋 Hi, I’m @ItsJenny3333
-- 👀 I’m interested in Playing roblox lol
+- 👀 I’m interested in Cooking
 - 🌱 I’m currently learning in drawing
-- 💞️ I’m looking to collaborate on ...
+- 💞️ I’m looking to collaborate on friends?
 - 📫 How to reach me dont ask
-- 😄 Pronouns: happy/nice/jelous kinda
+- 😄 Pronouns: happy/nice
 - ⚡ Fun fact: nothing much...
 
 <!---
